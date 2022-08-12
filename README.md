@@ -3,7 +3,7 @@
 - 👀 I’m interested in Software Development and Data Science 
 - 🧑🏻‍🎓 Bachelor's in Computer Science
 - 🏫 Final Year Student at IBA university.
-- 🌱 I’m currently learning everything. 🤣
+- 🌱 I’m currently learning everything. 🤓
 - 📫 How to reach me: Email - irtezarizvi14@gmail.com , [LinkedIn - @Irteza Rizvi](https://www.linkedin.com/in/irteza-rizvi7/)
 - ⚡️ Fun Fact: Huge fan of football and love to play FIFA
 - ⚽️ Favourite Clubs: Real Madrid CF ⚪️ and Chelsea FC 🔵
