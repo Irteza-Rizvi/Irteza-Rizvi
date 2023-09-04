@@ -2,8 +2,8 @@
 
 - 🧑🏻‍🎓 Bachelor's in Computer Science
 - 🏫 Fresh Graduate from IBA University.
-- 🌱 I’m currently learning Software Engineering. 🤓
-- 🤝 I’m looking for a new role Software Engineer
+- 🌱 I’m currently learning Software Engineering & Web Development. 🤓
+- 🤝 I’m looking for a new role Software Engineer.
 - 📫 How to reach me: Email - irtezarizvi14@gmail.com , [LinkedIn - @Irteza Rizvi](https://www.linkedin.com/in/irteza-rizvi7/)
 - ⚡️ Fun Fact: Huge fan of football and love to play FIFA
 - ⚽️ Favourite Clubs: Real Madrid CF ⚪️ and Chelsea FC 🔵
